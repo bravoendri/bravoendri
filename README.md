@@ -1,4 +1,4 @@
-### Hi there, I'm an English champ and Recruiter at times I love tech more than rhymes 👋
+### Hi there, I'm an English champ and Recruiter at times I love tech more than rhymes ! 👋
 
 <!--
 **bravoendri/bravoendri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
